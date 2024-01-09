@@ -1,4 +1,4 @@
-# ⚡️ Recopilación de Proyectos ⚡️ 
+# ⚡️ Recopilación de Proyectos ⚡️
 
 _¡Felicidades, has terminado el curso! ✅_
 
